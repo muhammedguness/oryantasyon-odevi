@@ -1,2 +1,3 @@
 # oryantasyon-odevi
-oryantasyon ödevi ve Youtube linkim
+oryantasyon ödevi ve Youtube linkim:
+j
